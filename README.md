@@ -1,0 +1,2 @@
+# Rajmata-Vijayaraje-Scindia-Krishi-Vishwa-Vidyalaya-Gwalior
+The Rajmata Vijayaraje Scindia Krishi Vishwa Vidyalaya was established by Government of Madhya Pradesh on 19th August, 2008 as second Agricultural University by bifurcating the JNKVV, Jabalpur. University has grown into a diverse innovative institution of higher education in the fields of teaching, research and extension in agricultural sciences.
